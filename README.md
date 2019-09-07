@@ -1,2 +1,4 @@
-# cs50xiraq
-CS50x Iraq assignments 
+YO , IT'S ROSE AND DINA !
+MEOWWWW
+nia nia nia 
+Java rocks!
